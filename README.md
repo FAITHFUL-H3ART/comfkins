@@ -14,4 +14,8 @@
 
 — Shashaping : Catch Teenieping : Dessert Catch
 
-— i forgo others so this is a wip im lazy !!! 
+— Bittergiggle : Garten of Ban Ban
+
+— Shadow Milk Cookie : Cookie Run Kingdom
+
+— i forgo others so this is a wip im lazy !!! Don't ask why i like jesters and clowns !!! 

@@ -10,7 +10,7 @@
 
 — Vinestaff : P! ( PHIGHTING ) 
 
-— Ragatha , Jax : The Amazing Digital Circus
+— Ragatha , Jax , Pomni , Gangle : The Amazing Digital Circus
 
 — Shashaping : Catch Teenieping : Dessert Catch
 

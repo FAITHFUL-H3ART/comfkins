@@ -4,7 +4,7 @@
 
 — Buggy the Clown : ONE PIECE
 
-— Bobette , Yatta , Bassie : DANDY'S WORLD
+— Bobette , Yatta , Bassie , Gourdy : DANDY'S WORLD
 
 — Sunny : RAINBOW HIGH
 
@@ -19,5 +19,7 @@
 — Shadow Milk Cookie : Cookie Run Kingdom
 
 — Doey , Lily Lovebraids : Poppy Playtime
+
+— One : TPOT
 
 — i forgo others so this is a wip im lazy !!! Don't ask why i like jesters and clowns !!! 

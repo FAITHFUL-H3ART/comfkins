@@ -22,4 +22,9 @@
 
 — One : TPOT
 
+— True , Night Queen : True and The Rainbow Kingdom
+
+— Nooby : Soybean 
+
+
 — i forgo others so this is a wip im lazy !!! Don't ask why i like jesters and clowns !!! 
